@@ -1,1 +1,0 @@
-# omxproyt.github.io
